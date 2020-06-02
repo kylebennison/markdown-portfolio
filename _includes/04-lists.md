@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Snacking
+2. Raychel
+    1. Raychel's feet
